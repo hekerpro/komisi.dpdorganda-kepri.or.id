@@ -1,1 +1,0 @@
-# komisi.dpdorganda-kepri.or.id
